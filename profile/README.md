@@ -1,5 +1,6 @@
 # Hi, fellow Data Researchers & AI Scientists 👋
 
+![large scale, abstract, computer plotter print out on paper :: bauhaus minimalism :: complex data ::](https://user-images.githubusercontent.com/76883/218246712-93d0c5fb-0c3d-4052-8a6e-d081c7f5fa9c.png)
 
 
 
